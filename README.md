@@ -7,7 +7,7 @@
 m͟i͟n͟o͟r͟ ⸝⸝ ![tumblr_2c894944273552ec7b527c969e9c64d0_297b3a07_75](https://github.com/user-attachments/assets/61acc6d9-c148-48f2-a9b2-4c0c185ba011)
 
 𝗶𝗹𝗹𝗶𝘁
-. 𝒅𝒆𝒎𝒊𝒈𝒊𝒓𝒍 愛
+. 𝗱𝗲𝗺𝗶𝗴𝗶𝗿𝗹 愛
 
 ![tumblr_bf64cc325fd55c591f5b1cf9489e1689_e0ce62cc_250](https://github.com/user-attachments/assets/273ea996-700e-4e37-a8b3-926fd15c0ad9)
 
