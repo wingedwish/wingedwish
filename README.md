@@ -1,9 +1,6 @@
-# ![tumblr_2b358fb0ecb8f341cf1d29354515449b_ecc68cb6_75](https://github.com/user-attachments/assets/57199cd2-961d-4818-8629-f4de099cc2cf) - "Woah! That's some fast delivery!" 
+# ![tumblr_2b358fb0ecb8f341cf1d29354515449b_ecc68cb6_75](https://github.com/user-attachments/assets/57199cd2-961d-4818-8629-f4de099cc2cf) - "Pizza delivery!" 
 
-<img width="700" height="200" alt="tumblr_0627f7bee6bc35216fe43c030fb3944c_2366906b_400" src="https://github.com/user-attachments/assets/acbaa7f0-b74f-4470-a544-5c3ef520491b" />
-
-
-<img width="700" height="500" alt="tumblr_2c3f181d301ed3e8bab8a48ad6db3fa9_0cee0e7a_250" src="https://github.com/user-attachments/assets/c7296659-e9e5-4059-b646-9a0de9fd2b55" />
+![Elliot – Banner_](https://github.com/user-attachments/assets/0064cf02-a45c-4da6-8e4e-bd8dc1de6820)
 
 𓏲𝄢　𓈒　「 s᥆ᥣ / іsᥲ 」
 
