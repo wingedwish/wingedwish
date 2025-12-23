@@ -1,6 +1,7 @@
 # ![tumblr_2b358fb0ecb8f341cf1d29354515449b_ecc68cb6_75](https://github.com/user-attachments/assets/57199cd2-961d-4818-8629-f4de099cc2cf) - "Pizza delivery!" 
 
-![Elliot – Banner_](https://github.com/user-attachments/assets/0064cf02-a45c-4da6-8e4e-bd8dc1de6820)
+<img width="700" height="200" alt="tumblr_0b740d02ebffe98f59b9cdcbcf48d676_3ec8de91_400" src="https://github.com/user-attachments/assets/9fd569fc-fcac-4d8c-90c8-95e4a1078fdc" />
+
 
 𓏲𝄢　𓈒　「 s᥆ᥣ / іsᥲ 」
 
