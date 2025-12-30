@@ -2,7 +2,7 @@
 
 <img width="2000" height="900" alt="tumblr_0b740d02ebffe98f59b9cdcbcf48d676_3ec8de91_400" src="https://github.com/user-attachments/assets/9fd569fc-fcac-4d8c-90c8-95e4a1078fdc" />
 
-𓏲𝄢　𓈒　「 𝒔𝒐𝒍 / 𝒊𝒔𝒂 」
+𓏲𝄢　𓈒　「 𝒔𝒐𝒍 / ℒ𝒖𝒄𝒊𝒆 」
 
 m͟i͟n͟o͟r͟ ⸝⸝ ![tumblr_2c894944273552ec7b527c969e9c64d0_297b3a07_75](https://github.com/user-attachments/assets/61acc6d9-c148-48f2-a9b2-4c0c185ba011)
 
