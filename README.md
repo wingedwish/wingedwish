@@ -7,14 +7,13 @@
   
  𓏲𝄢　𓈒　「 s͟𝒐𝒍 」恨   
  
- ![tumblr_f8c93bccd64aa32a2e2f369853ab47fe_cdc7515e_100](https://github.com/user-attachments/assets/918b35ad-9974-4479-b3b5-489462ae0d94)![tumblr_052a30fbedf59df0a02a22e4931cd463_5488273f_100](https://github.com/user-attachments/assets/698158d1-bf9b-4c22-92cd-1a536b935b7c)   
-
  
 m͟i͟n͟o͟r͟   ⸝⸝ 
+
 sһᥱ / ᥲᥒᥡ 🌹 
 
 
-
+ ![tumblr_f8c93bccd64aa32a2e2f369853ab47fe_cdc7515e_100](https://github.com/user-attachments/assets/918b35ad-9974-4479-b3b5-489462ae0d94)![tumblr_052a30fbedf59df0a02a22e4931cd463_5488273f_100](https://github.com/user-attachments/assets/698158d1-bf9b-4c22-92cd-1a536b935b7c)   
 
 <img width="700" height="900" alt="tumblr_a27dbb2bff668abf11f20687dd9b12cf_53a8e37b_400" src="https://github.com/user-attachments/assets/3a718dd3-d27c-4b45-bc17-52a133379a0e" />
 
