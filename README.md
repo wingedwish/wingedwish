@@ -1,4 +1,4 @@
-![tumblr_31479a66cc145400e5500f6826a9c2b4_8c551b73_75](https://github.com/user-attachments/assets/3a3aa47a-4bae-40ec-b656-aad529ff8f10) - "There's only one left! How dubious."
+# ![tumblr_31479a66cc145400e5500f6826a9c2b4_8c551b73_75](https://github.com/user-attachments/assets/3a3aa47a-4bae-40ec-b656-aad529ff8f10) - "There's only one left! How dubious."
 
 <img width="2000" height="900" alt="tumblr_b0416412ca13714add695ff684215695_09a24800_1280-removebg-preview" src="https://github.com/user-attachments/assets/6d72d240-7f57-45a1-8931-d16dbf4003f3" />
 
