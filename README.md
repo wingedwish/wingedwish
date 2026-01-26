@@ -10,7 +10,7 @@
  
 m͟i͟n͟o͟r͟   ⸝⸝  𝗱𝗲𝗺𝗶𝗴𝗶𝗿𝗹
 
-sһᥱ / ᥲᥒᥡ 🌹 
+sһᥱ / ᥲᥒᥡ . 🌹 
 
 
  ![tumblr_f8c93bccd64aa32a2e2f369853ab47fe_cdc7515e_100](https://github.com/user-attachments/assets/918b35ad-9974-4479-b3b5-489462ae0d94)![tumblr_052a30fbedf59df0a02a22e4931cd463_5488273f_100](https://github.com/user-attachments/assets/698158d1-bf9b-4c22-92cd-1a536b935b7c)   
