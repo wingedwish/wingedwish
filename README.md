@@ -11,7 +11,8 @@
 sһᥱ / ᥲᥒᥡ . 🌹 ⍴ᥲᥒsᥱ᥊ᥙᥲᥣ
 
 
- ![tumblr_f8c93bccd64aa32a2e2f369853ab47fe_cdc7515e_100](https://github.com/user-attachments/assets/918b35ad-9974-4479-b3b5-489462ae0d94)
+ ![tumblr_f8c93bccd64aa32a2e2f369853ab47fe_cdc7515e_100](https://github.com/user-attachments/assets/918b35ad-9974-4479-b3b5-489462ae0d94)![tumblr_052a30fbedf59df0a02a22e4931cd463_5488273f_100](https://github.com/user-attachments/assets/06c0dbd3-df75-4573-ac0f-74bffe198571)
+
 
  ![tumblr_d14376cbd0b22778b7a235af70ac7dfa_5d4ee559_100](https://github.com/user-attachments/assets/d68965ec-9c4b-43a6-8c4b-a10db1d23a46)
 ![tumblr_32bfdea192b39a2f5d10972907323a03_4c9ecaa9_250](https://github.com/user-attachments/assets/42add350-ecce-460b-8a3c-91ae7c6a0065)
