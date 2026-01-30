@@ -6,6 +6,8 @@ ${\textsf{\color{#5e5818}𓏲𝄢 𓈒「 s͟𝒐𝒍 」恨}}$
 
 ${\textsf{\color{#7f8279}m͟i͟n͟o͟r͟ ⸝⸝ ძᥱmіgіrᥣ}}$
 
-${\textsf{\color{#090805}sһᥱ / ᥲᥒᥡ . 🌹 ⍴ᥲᥒsᥱ᥊ᥙᥲᥣ}}$ /
+${\textsf{\color{#5c3a1a}sһᥱ / ᥲᥒᥡ}}$
+
+
 
 <img width="1500" height="300" alt="tumblr_33db982b40b68fc3669db68619f46d82_7089d20f_400" src="https://github.com/user-attachments/assets/b5e79040-c05f-431e-9b44-4069bda17108" />
