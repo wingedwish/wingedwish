@@ -1,13 +1,21 @@
-<img width="1500" height="300" alt="tumblr_f0a80c13a62ad068937c3dcdf75ada24_347102d6_400" src="https://github.com/user-attachments/assets/94a3ff4a-6c9a-4aa3-aff5-92372478feb9" />
 
-<img width="600" height="900" alt="tumblr_0b53ad1ef314ebb6a088f39f70185e08_7da03baa_400" src="https://github.com/user-attachments/assets/5f5a7e14-f48a-486e-9325-9cda2dd4d8d5" />
+![](https://files.catbox.moe/vva0s8.png)
 
-${\textsf{\color{#5e5818}𓏲𝄢 𓈒「 s͟𝒐𝒍 」恨}}$
+![](https://files.catbox.moe/qk0hs8.png)
 
-${\textsf{\color{#7f8279}m͟i͟n͟o͟r͟ ⸝⸝ ძᥱmіgіrᥣ}}$
-
-${\textsf{\color{#5c3a1a}sһᥱ / ᥲᥒᥡ .ᐟ ♡}}$
-
-<img width="1500" height="300" alt="tumblr_33db982b40b68fc3669db68619f46d82_7089d20f_400" src="https://github.com/user-attachments/assets/b5e79040-c05f-431e-9b44-4069bda17108" />
+${\textsf{\color{#358486}𓏲𝄢 𓈒「 s͟𝒐𝒍 」}}$ ![tumblr_c689a18d723ecaca50c98c6eaa9888f1_d38a5dc2_75](https://github.com/user-attachments/assets/8d5b7297-a680-4fe9-8a61-2669f8f3cec8)
 
 
+${\textsf{\color{#48d2ad}m͟i͟n͟o͟r͟ ⸝⸝ ძᥱmіgіrᥣ}}$ ![tumblr_66bdcfddb829de0d0243be944bfdd8b0_3a07e670_75](https://github.com/user-attachments/assets/b6e5953c-25fa-4be6-bd2c-8d040a6e76e5)
+
+
+${\textsf{\color{#bca039}sһᥱ / ᥲᥒᥡ .ᐟ ♡}}$
+
+
+
+->![](https://files.catbox.moe/59st20.png)<-
+
+>❝ Keep working and soon you won't require my assistance . ❞<- ![tumblr_2ad415c8e68940ef1e595bce129f422d_28ea7203_75](https://github.com/user-attachments/assets/e61af9ce-1275-4aa1-b4ca-afc052a7b8f2)
+
+
+![](https://files.catbox.moe/cxcm26.png)
