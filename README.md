@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://komarev.com/ghpvc/?username=MyBloodyValent1ne&color=9cd9e4&label=iTrapped&style=plastic" alt="profile views counter">
+  <img src="https://komarev.com/ghpvc/?username=MyBloodyValent1ne&color=9cd9e4&label=views&style=plastic" alt="profile views counter">
 </p>
 
 <img width="900" height="700" alt="tumblr_39f6a19e107b66f5c24012b76d64cef5_894df078_400" src="https://github.com/user-attachments/assets/081d9325-40b3-4908-8ad7-00591e109682" />
