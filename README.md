@@ -1,3 +1,7 @@
+<p align="center">
+  <img src="https://komarev.com/ghpvc/?username=MyBloodyValent1ne&style=for-the-badge&color=9cd9e4">
+</p>
+
 <img width="900" height="700" alt="tumblr_39f6a19e107b66f5c24012b76d64cef5_894df078_400" src="https://github.com/user-attachments/assets/081d9325-40b3-4908-8ad7-00591e109682" />
 
 
