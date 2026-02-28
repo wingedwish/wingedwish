@@ -16,7 +16,7 @@ ${\textsf{\color{#5f7895}sһᥱ / ᥲᥒᥡ .ᐟ ♡}}$
 ![tumblr_394d72ce1b3d467b3b99377110bd58d9_2007b7b2_100](https://github.com/user-attachments/assets/a1aa768a-b22e-4acf-aa6b-6aafd57aee43) 
  
 
-❝　it's time to forget all your pains and worries!　❞　𓏲𑁘
+${\textsf{\color{#e6f1ee}❝　it's time to forget all your pains and worries!　❞　𓏲𑁘}}$
 
 
 
